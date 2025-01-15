@@ -1,0 +1,2 @@
+Aslan Krutoi
+gde stipendia?
